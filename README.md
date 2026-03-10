@@ -1,1 +1,0 @@
-# hongik_grad
